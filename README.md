@@ -1,3 +1,2 @@
-# rodneyamorsupport.github.io
-Contact me at:
+# Contact Information
 email: rodneyamor1@gmail.com
