@@ -1,2 +1,2 @@
 # Contact Information
-email: rodneyamor1@gmail.com
+email: rodneyamor1@icloud.com
